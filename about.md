@@ -8,7 +8,7 @@ I like movies, music, and radical politics. Maybe I'll post some stuff related t
 
 ### Links
 
-[Twitter](twitter.com/lemasterbedroom)
+[Twitter](lemasterbedroom)
 
 [Letterboxd](https://letterboxd.com/lemasterc/)
 
