@@ -9,7 +9,10 @@ I like movies, music, and radical politics. Maybe I'll post some stuff related t
 ### Links
 
 [Twitter](twitter.com/lemasterbedroom)
+
 [Letterboxd](https://letterboxd.com/lemasterc/)
+
 [RYM](https://rateyourmusic.com/~lemasterc)
+
 [Last.fm](http://www.last.fm/user/CodyLeMaster)
 
